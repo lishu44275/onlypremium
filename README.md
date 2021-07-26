@@ -1,1 +1,1 @@
-# onlypremium
+# Prank use
